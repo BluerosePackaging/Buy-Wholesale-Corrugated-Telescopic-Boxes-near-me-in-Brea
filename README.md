@@ -1,4 +1,4 @@
-# Buy Wholesale Corrugated Telescopic Boxes-near me in Brea | Bluerose Packaging
+# Buy Wholesale Corrugated Telescopic Boxes near me in Brea | Bluerose Packaging
 
 Buy wholesale Corrugated Telescopic Boxes in Brea. fast local pickup or delivery. Bulk prices, various sizes—order today and save
 
